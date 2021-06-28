@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ibrahimmulla2727
+- 👀 I’m interested in programming,AI,ML.
+- 🌱 I’m currently learning python.
+- 💞️ I’m looking to collaborate on python projects.
+- 📫 add me on your python project now .... to get best results.
